@@ -14,7 +14,7 @@ https://officiallygod.github.io/Coronai-website/index
 
 -----
 ## Contribution
-[Allen Benny](https://www.linkedin.com/in/allen-benny-863729169/)
+[Allen Benny](https://www.linkedin.com/in/allen-benny/)
 &nbsp;
 [Aritra Paul](https://www.linkedin.com/in/aritra-paul-6976101a4/)
 &nbsp;
